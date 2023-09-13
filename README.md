@@ -1,1 +1,1 @@
-# HATRED1111111.github.io
+# HATRED1111111.com
